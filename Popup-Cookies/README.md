@@ -10,3 +10,6 @@
 
 
 🤍 Join me on Instagram for more content [EthanDeL](https://www.instagram.com/ethan_del_code/)
+
+
+<img width="716" alt="miniature" src="https://github.com/EthanDeL/Popup-cookies/assets/121880462/2ae527fd-e321-499f-b79d-83ed0f4149e5">
